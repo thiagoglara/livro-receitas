@@ -1,5 +1,6 @@
 # Livro de receitas
 
-Olá! Bem-vindo ao meu livro de receitas.
+Olá! Bem-vindo ao meu livro de receitas (coletânea).
 
-- Macarronada
+- Macarronada 
+- Espaguete à Carbonara
