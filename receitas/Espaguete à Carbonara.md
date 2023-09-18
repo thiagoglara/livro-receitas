@@ -8,7 +8,7 @@
 - 2 ovos
 - 2 gemas
 - ½ xícara (chá) de queijo parmesão ralado
-- sal e pimenta-do-reino moída na hora a gosto
+- sal e pimenta-do-reino moída na hora a gosto.
 
 ### Modo de Preparo
 
